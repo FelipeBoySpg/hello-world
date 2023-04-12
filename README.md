@@ -4,4 +4,3 @@
 - 26 anos
 - Homem
 - Branco
-- Moreno
